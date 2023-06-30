@@ -24,8 +24,7 @@
 
 ----------------------------------------------------------------------------------
 
-> To get added you need to support through any way.
-> To get added you need to help through any way.
+> Support or help in anyway
 
 + 𝑺𝒖𝒑𝒑𝒐𝒓𝒕𝒆𝒓𝒔: 
    
