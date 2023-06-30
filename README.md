@@ -43,7 +43,7 @@
 ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/fb14fc7b-e57b-4431-b471-cbc5f18cd6fb)
 
 
-| [𝙈𝙔 𝙎𝘾𝙍𝙄𝙋𝙏𝙎](https://mod4real4.github.io/) | [𝙊𝙏𝙃𝙀𝙍 𝙎𝘾𝙍𝙄𝙋𝙏𝙎](https://mod4real5.github.io/) | [𝙈𝙊𝙍𝙀 𝙄𝙉𝙁𝙊](https://mod4real6.github.io/) | 
+| [𝙈𝘼𝙄𝙉 𝙋𝘼𝙂𝙀](https://mod4real4.github.io/) | [𝙋𝘼𝙔𝙈𝙀𝙉𝙏𝙎 𝙎𝙃𝙊𝙋](https://mod4real5.github.io/) | [𝙈𝙊𝙍𝙀 𝙄𝙉𝙁𝙊](https://mod4real6.github.io/) | 
 
 ----------------------------------------------------------------------------------
 
